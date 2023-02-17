@@ -4,3 +4,4 @@ So, I have a friend that is really into Numerology. I asked him if there was any
 Notice the part that mentions great fortune will come in the future. This explains why so many huge ass PP scores were flying left and right as soon as Angelsim beat 727. This number has even impacted my life irl. So many great things have impacted my life drastically since October, and that was around the time 727 has been surpassed.
 
 I really hope this message gets around, because I never knew something so simple could have such a huge meaning. Cookiezi is quite literally a god, both in skill and destiny.
+https://tanyadgrchf.github.io/Folio/
